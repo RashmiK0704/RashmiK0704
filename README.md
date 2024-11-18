@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Rashmi Kanojia
+- 📫 How to reach me ...
+-  https://www.linkedin.com/in/rashmi-kanojia-522571292/ 
+- 📧 Email:rashmikanojia0704@gmail.com
+- 😄 Pronouns: She/Her
